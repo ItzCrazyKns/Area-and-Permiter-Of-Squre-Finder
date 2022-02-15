@@ -3,3 +3,5 @@
 ### Made By KnsGamer
 ### Join My Discord For More Amazing Crazy Ideas
 ### [My Discord](https://discord.gg/3vUx24nYYp)
+
+You Just Have To Put The Side And The Operator(area or perimeter)
